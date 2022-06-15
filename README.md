@@ -1,1 +1,1 @@
-parola e "hecksmk" pa
+pass is "hecksmk" bye
